@@ -1,5 +1,8 @@
-## Hi there 👋
+## Yo! ✌️
 
+👯 Currently looking to for people who want to bring a positve change to society and help the world grow into a better place. Let's do our best, one step at a time.
+
+⚡ Fun fact: Did you know that sitting for too long gets us older? Yeesh.
 <!--
 **amentos02/amentos02** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
